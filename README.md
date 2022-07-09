@@ -1,2 +1,0 @@
-# tiral-promoter
-NEW
